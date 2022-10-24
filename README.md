@@ -1,6 +1,6 @@
 # MadH-Crash
 
-##Please don't use it for yourself 
+## Please don't use it for yourself 
 ##            very very very ...... infinite most power full tool ##
 ## This tool is most dangerous and very very most powerful...
 ## Please Do not use it own personal phone or computer
